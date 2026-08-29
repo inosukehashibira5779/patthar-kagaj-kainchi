@@ -1,1 +1,1 @@
-https://inosukehashibira5779.github.io/patthar-kagaj-kainchi/
+https://prathampatel79.github.io/patthar-kagaj-kainchi/
